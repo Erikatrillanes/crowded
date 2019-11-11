@@ -2,4 +2,4 @@
 
 Hi everyone!
 
-Erika here, I want to learn more that's why I'm here.
+Erika here, looking forward for new learnings:)
